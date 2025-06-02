@@ -1,23 +1,23 @@
 Hello,
-I am MD Rasel Ahmed Redoy, a passionate Graphic Designer, Video Editor, and Image Editing Specialist with 4 years of experience in delivering creative solutions across various marketplaces.
+I am MD Rasel Ahmed Redoy, a Passionate Graphic Designer, Video Editor, and Image Editing Specialist with 4 years of experience in delivering creative solutions across various marketplaces.
 
 I love turn ideas into visually stunning designs that captivate audiences and help brands stand out.
+
 My first priority is client satisfaction Whether it’s crafting eye-catching graphics, editing professional videos, or perfecting images, I’m here to bring your vision to life.
+
 My Skills Include:
 • Image Editing / Adobe Photoshop
 • Graphic Design
 • Video Editing
 • Thumbnail Creation
-Personal & Professional Coaching
-Community Management
-Web Development
-Ecommerce Development
-Design & Creative
-Branding & Logo Design
-Sales & Marketing
-Digital Marketing
-Content Writing
-Sales & Marketing Copywriting
+• Personal & Professional Coaching
+• Community Management
+• Web Development
+• Ecommerce Development
+• Design & Creative
+• Sales & Marketing
+• Digital Marketing
+• Content Writing
 
 🎓 Education 
 Institution: Tongi Goverment Collage
@@ -27,7 +27,7 @@ Grade: 4.17(5.00)
 
 
 Degree: Sales & Marketing (Bechelor) in Management 
-Institution: National University of Bangladesh (American International University-Bangladesh) 
+Institution: American International University-Bangladesh
 Graduation Year: 2024 
 Grade: 3.08 (4.00)
 
