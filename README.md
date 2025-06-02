@@ -8,15 +8,31 @@ My Skills Include:
 • Graphic Design
 • Video Editing
 • Thumbnail Creation
+Personal & Professional Coaching
+Community Management
+Web Development
+Ecommerce Development
+Design & Creative
+Branding & Logo Design
+Sales & Marketing
+Digital Marketing
+Content Writing
+Sales & Marketing Copywriting
 
 🎓 Education 
-Degree: BBA (Hon’s) in Management 
-Institution: National University of Bangladesh (Tongi Government College) 
-Graduation Year: 2022 
-Grade: 3.08 
+Institution: Tongi Goverment Collage
+High School Diploma: Business Studies, GeneralHigh School Diploma (Business/Commerce, General)
+Graduation Year: Jan 2018 - Sep 2020Jan 2018 - Sep 2020
+Grade: 4.17(5.00)
+
+
+Degree: Sales & Marketing (Bechelor) in Management 
+Institution: National University of Bangladesh (American International University-Bangladesh) 
+Graduation Year: 2024 
+Grade: 3.08 (4.00)
 
 Overview 
-I am a passionate Hon’s (BBA) graduate specializing in Management. My academic journey at Tongi Government College provided a solid foundation in business administration and management principles. Throughout my studies, I demonstrated dedication to excellence, consistently earning certifications and achievements. 
+I am a passionate Hon’s (BBA) graduate specializing in Management. My academic journey at American International University-Bangladesh provided a solid foundation in business administration and management principles. Throughout my studies, I demonstrated dedication to excellence, consistently earning certifications and achievements. 
 
 Relevant Courses 
 
